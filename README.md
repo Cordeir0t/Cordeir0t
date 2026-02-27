@@ -36,4 +36,4 @@ Atuo como estagiária em sistemas embarcados na Embeddo e tenho experiência com
 - LinkedIn: [linkedin.com/in/talita-cordeiro-teixeira](https://www.linkedin.com/in/talita-cordeiro-teixeira/)
 - Instagram: [instagram.com/_talita.cordeiro_](https://www.instagram.com/_talita.cordeiro_/)
 
-Fique à vontade para entrar em contato sobre oportunidades, colaborações ou dúvidas técnicas.[cite:16][cite:17][cite:18]
+Fique à vontade para entrar em contato sobre oportunidades, colaborações ou dúvidas técnicas.
